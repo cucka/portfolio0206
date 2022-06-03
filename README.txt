@@ -1,4 +1,4 @@
-Hello first line :):):) lalallal
+Hello first line :):):) lalallal friday
 second line text 03.06 :) from my portfolio0206
 second line 
 third line
